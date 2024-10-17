@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on coding
-- 📫 How to reach me ... discord: upsibey
+- 📫 How to reach me for coding ... discord: upsibey
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I like coding
 
